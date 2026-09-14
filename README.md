@@ -1,5 +1,4 @@
 # Veterinary-Clinic-Acquisition-Underwriting
-# Veterinary Clinic Acquisition Underwriting
 
 *Private Markets | Acquisition Underwriting | Real Assets | Investment Analysis*
 
